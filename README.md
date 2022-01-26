@@ -7,4 +7,3 @@ Will contain images at the unlock screen of the things you may think is your dre
  
 3- What's next?, it will appear many investigation references from professional of your career behind the article/new; they would be youtube, instagram, website references, and so on. Thus, you can get into many free resources from diferent apps without wasting your time searching videos about which would you do with your life basically. I mean, you can take tips from them but you need algorithm near to your career so that they might be shown on youtube channels, facebook pages, instagram reels,twitter posts ,etc. 
 
-4- I believe this is the healthiest way to make a kid or maybe an adolescent be familiar to their dreams.
